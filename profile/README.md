@@ -2,7 +2,7 @@
 
 **看这里🤞🤟🤘✋**
 
-### 🙋‍♀️ 这里是 miHoYo 平台Android技术团队
+### 🙋‍♀️ 这里是 miHoYo 平台的Android同学
 
 ### 🌈 Contribution guidelines - how can the community get involved?
 

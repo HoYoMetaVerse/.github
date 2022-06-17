@@ -2,13 +2,13 @@
 
 **看这里🤞🤟🤘✋**
 
-### 🙋‍♀️ 这里是 miHoYo 平台的Android同学
+### 🙋‍♀️ 这里是 miHoYo 平台的Android同学们
 
-### 🌈 Contribution guidelines - how can the community get involved?
+### 🌈 广告位招租
 
-### 👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
+### 👩‍💻 广告位招租
 
-### 🍿 Fun facts - what does your team eat for breakfast?
+### 🍿 广告位招租
 
 ### 🧙 恰饭时间,岗位介绍，投递请猛戳我们 ⬇️⬇️⬇️⬇️ ⬇️⬇️⬇️⬇️ ⬇️⬇️⬇️⬇️
 

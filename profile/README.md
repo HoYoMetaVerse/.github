@@ -12,4 +12,4 @@
 
 ### 🧙 恰饭时间,岗位介绍，投递请猛戳我们 ⬇️⬇️⬇️⬇️ ⬇️⬇️⬇️⬇️ ⬇️⬇️⬇️⬇️
 
-![](./pics/qiafan.png)
+![](https://github.com/HoYoMetaVerse/.github/blob/main/profile/pics/qiafan.png)

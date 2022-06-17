@@ -10,4 +10,10 @@
 
 ### 🍿 Fun facts - what does your team eat for breakfast?
 
-### 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
+### 🧙 恰饭时间,岗位介绍，投递请猛戳我们 ⬇️⬇️⬇️⬇️ ⬇️⬇️⬇️⬇️ ⬇️⬇️⬇️⬇️
+
+![](./pics/qiafan1.jpeg)
+
+![](./pics/qiafan2.jpeg)
+
+![](./pics/qiafan3.jpeg)
